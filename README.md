@@ -1,8 +1,4 @@
-<p style="text-align: center;">&nbsp;<strong>&gt;&gt;SHOP NOW&gt;&gt;</strong></p>
-<p style="text-align: center;"><strong><a href="https://hotdeal24x7.com/horsepower-duck-vacuum-buy">https://hotdeal24x7.com/horsepower-duck-vacuum-buy</a></strong></p>
-<p align="center"><strong>&gt;&gt;SHOP NOW&gt;&gt;</strong></p>
-<p align="center"><strong><a href="https://www.facebook.com/HorsepowerDuckVacuumReviews/">https://www.facebook.com/HorsepowerDuckVacuumReviews/</a></strong></p>
-<p>&nbsp;</p>
+
 <p>╰┈➤<strong>Product Name &mdash;<a href="https://hotdeal24x7.com/horsepower-duck-vacuum-buy">Horsepower Duck Vacuum Reviews</a></strong></p>
 <p>╰┈➤<strong>Composition &mdash;<a href="https://hotdeal24x7.com/horsepower-duck-vacuum-buy">Natural Organic Compound</a></strong></p>
 <p>╰┈➤<strong>Side-Effects&mdash;<a href="https://hotdeal24x7.com/horsepower-duck-vacuum-buy">NA</a></strong></p>
